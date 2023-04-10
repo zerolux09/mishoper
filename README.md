@@ -1,2 +1,1 @@
-# mishoper
-mystore
+pikMzqt
